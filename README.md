@@ -1,1 +1,0 @@
-# sem-legenda-teacherbruno
